@@ -6,7 +6,7 @@
 
 
 ## 👋 About Me
-🚌 Studying at **Grambling State University**, Class of 2028  
+🚌 Studying at **Grambling State University**, Class of 2029  
 💡 Fun fact: I love beading  
 🙃 Currently learning everything from AI to ML  
 😊 Open to internship opportunities  
